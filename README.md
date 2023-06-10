@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Cmannz
+- 👀 I’m interested in the casino police stealing from gamblers and the casino technology 
+- ...
+- 🌱 I’m currently learning how to help the casino from the police is to not steal , respect that if you were not invited by the casino exclusivly then you are stealing, if you play games you are falling for the hit, if you use another individual as your scared you stole and blamed everything on the single girl with no friends , it means that canadas evonomy will fail
+- if you think the casino owes you somethimg it doesnt , my billion dollar body was my money while i waited  and i myst be paid for it.
+- ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me. Main-Line@mail.com ...
+
+<!---
+Cmannz/Cmannz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
